@@ -19,3 +19,4 @@ Read me:
 
 
 
+My email is yzcmf@mail.missouri.edu; If you want the part 1 and part 2 report to learn more, just send me an email, I'll get in touch with you as soon as possible.
